@@ -1,1 +1,0 @@
-# danpaglia.github.io
